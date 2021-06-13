@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Fried chips
+2. Potato
+3. Cake
